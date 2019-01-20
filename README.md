@@ -50,6 +50,10 @@ Cooked_chickpeas: Seasoned_chickpeas
 	Add in hot skillet:
 	- Seasoned_chickpeas
 
+	Cook for 8 minutes (or until browned. stir occasionally)
+
+	(Note: Don’t be alarmed if they look like they are burning…they aren’t!)
+
 Dressing:
 	Add in a blender:
 	- 3/4 cup of cannellini beans
