@@ -25,6 +25,11 @@ Veggies:
 
 	Flip.
 
+	Add on the baking sheet:
+	- the curly kale.
+	- 2 tsp of olive oil
+	- a pinch of salt
+
 	Roast for 10 minutes.
 
 Seasoned_chickpeas:
